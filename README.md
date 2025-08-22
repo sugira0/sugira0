@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @sugira_bujuli
 - 👀 I’m interested in Web developing
-- 🌱 I’m currently Graduating at I.P.M saint joseph
+- 🌱 I’m Graduate.
 - 💞️ I’m Co-Founder of SecureShield.
-- 📫 How to reach me Email:sugirabujli2007@gmail.com
+- 📫 How to reach me Email:sugirabujuli2007@gmail.com
 phone:+250794279202
 - 😄 Pronouns: legend
 - ⚡ Fun fact: ...
