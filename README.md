@@ -2,8 +2,9 @@
 - 👀 I’m interested in Web developing
 - 🌱 I’m Graduate.
 - 💞️ I’m Co-Founder of SecureShield.
-- 📫 How to reach me Email:sugirabujuli2007@gmail.com
+- 📫 How to reach me Email:erastosugira@gmail.com
 phone:+250794279202
+      +250786831304
 - 😄 Pronouns: legend
 - ⚡ Fun fact: ...
 Reading.
