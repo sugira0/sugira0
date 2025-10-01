@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sugira_bujuli
+- 👋 Hi, I’m sugira_erasto
 - 👀 I’m interested in Web developing
 - 🌱 I’m Graduate.
 - 💞️ I’m Co-Founder of SecureShield.
